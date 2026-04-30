@@ -1,2 +1,2 @@
 # about-me
-My name  is Bond ,MY hobbies are football and watching movies
+My name  is Bond ,My favourate lesson is phe ofc
