@@ -1,2 +1,4 @@
 # about-me
-My name  is Bond ,I am learning coding (i like coding)
+My name  is Bond ,
+Fun fact about me is That i dont eat mayonnaise
+
